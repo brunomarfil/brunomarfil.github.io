@@ -1,1 +1,1 @@
-Blog pessoal que fiz em aula em 20min
+Blog pessoal que fiz na faculdade em 20min
